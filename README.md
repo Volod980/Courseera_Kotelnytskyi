@@ -1,1 +1,0 @@
-# Courseera_Kotelnytskyi
